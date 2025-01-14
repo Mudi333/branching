@@ -1,3 +1,3 @@
 # branching 
-She is cue
+She is cute
 ![Alt text](https://www.litter-robot.com/media//Siberian_Ozwina-4.0.jpeg)
